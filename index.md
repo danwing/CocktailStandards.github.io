@@ -42,7 +42,7 @@ _While you're in town, pick up excellent cocktail supplies at [The Boston Shaker
 
 ### San Francisco Bay Area
 
-* [Mortar & Pestle](http://www.curryupnow.com/mortarandpestlebar) - Very well-balanced
+* [Mortar & Pestle](http://www.curryupnow.com/mortarandpestlebar) - Very well-balanced. (San Mateo, San Jose)
 * [Pacific Cocktail Haven](http://pacificcocktailsf.com) - Friendly, loud, impeccable 
 
 ### Toronto
